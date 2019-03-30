@@ -1,1 +1,0 @@
-# Zhanibekkk.github.io
